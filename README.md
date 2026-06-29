@@ -8,3 +8,4 @@ Qual a importância do uso da inteligência artificial na medicina?
 Quais pesquisas médicas estão sendo realizadas com a inteligência artificial? 
 Quais os desafios do uso da inteligência artifical na medicina? 
 Fale sobre a questão ética na inteligência artificinal na medicina. 
+https://notebooklm.google.com/notebook/63b8f57f-6e7b-4cc3-9169-8215b434eef5/preview 
